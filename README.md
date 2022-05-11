@@ -1,2 +1,2 @@
-# Werkstück A von BS & RN bri Herrn Baun 
+# Werkstück A von BS & RN bei Herrn Baun 
 #Alterntaive A - Schiffeversenken  
